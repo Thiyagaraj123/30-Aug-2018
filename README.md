@@ -10,7 +10,7 @@ kclqcq
 klqqc
 ;kcq
 ,mcqccqc
-vjnv wkvw w
+vjnv wkvw ww, cc clwclcwc lc l ql qqelj eqdleqjqj qqeqj cj jcl eljc cq qlejc
 vvwvv
 kv vkv kw vwkvwv ww
 jwe vwv ;jwwe; v
