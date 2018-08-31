@@ -13,4 +13,3 @@ klqqc
 vjnv wkvw w
 vvwvv
 kv vkv kw vwkvwv ww
-jwe vwv ;jwwe; v
