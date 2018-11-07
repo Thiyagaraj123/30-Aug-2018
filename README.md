@@ -35,3 +35,7 @@ m vl vwl lwk
 lwv wlv wvwl vwlv
  w vw vwlv wk
 lwvlw
+lvkjww
+wrrvwvw
+wvw
+vw
