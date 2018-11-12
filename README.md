@@ -38,4 +38,8 @@ lwvlw
 lvkjww
 wrrvwvw
 wvw
+rv
+ev
+evv
+evv'e
 vw
